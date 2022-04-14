@@ -1,3 +1,3 @@
 # easter-secret
 
-DM me a 🐰 emjoi in slack for a prize!
+DM me a 🐰 emoji in slack for a prize!
